@@ -25,4 +25,4 @@ Natalie is the "n" of the Oamlnerds. She is inspiring, kind, loving, and full of
 
 * * *
 
-<button name="button" style="background-color:#4CAF50;border:none;color:white;padding:15px25px;text-align:center;font-size:16px;cursor:pointer;" onclick="./entertainment.html">Entertainment</button>
+<a href="./entertainment.html"><span style="background-color:#4CAF50;border:none;color:white;padding:15px25px;text-align:center;font-size:2em;cursor:pointer;">ENTERTAINMENT</span></a>
