@@ -19,4 +19,6 @@ Natalie is the "n" of the Oamlnerds. She is inspiring, kind, loving, and full of
 
 #THE OAMLNERDS!
 
+* * *
 
+<button name="button" onclick="./entertainment.html">Entertainment</button>
