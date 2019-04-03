@@ -23,3 +23,21 @@ In this section you will find fun things to do with friends or by yourself.
 * Would you rather fly a kite or swing on a swing?
 * Would you rather only be able to walk on all fours or only be able to walk sideways like a crab?
 * Would you rather start a colony on another planet or be the leader of a small country on Earth?
+
+* * * 
+
+### April's Reading List
+
+Every month we have a reading list. Check out these amazing books for April!
+
+OLIVIA RECOMENDS:
+
+* The Phantom tolbooth, for most ages
+* The Dragon Rider, ages 10 and up
+
+Ask Olivia About these books!
+
+ANGELA RECOMENDS:
+
+* Found, the missing, for ages 8 and up
+* Nathan Hales Hazardous tales for ages 8 and up
