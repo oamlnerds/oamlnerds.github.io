@@ -39,5 +39,12 @@ Ask Olivia About these books!
 
 ANGELA RECOMENDS:
 
-* Found, the missing, for ages 8 and up
-* Nathan Hales Hazardous tales for ages 8 and up
+* Found, the missing, for ages 9 and up
+* Nathan Hales Hazardous tales, One Dead Spy, for ages 8 and up
+
+Ask Angela About These Books!
+
+
+* * *
+
+
