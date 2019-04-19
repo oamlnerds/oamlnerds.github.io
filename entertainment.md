@@ -26,9 +26,9 @@ In this section you will find fun things to do with friends or by yourself.
 
 * * * 
 
-### April's Reading List
+### May Reading List
 
-Every month we have a reading list. Check out these amazing books for April!
+Every month we have a reading list. Check out these amazing books for May!
 
 OLIVIA RECOMENDS:
 
@@ -44,6 +44,10 @@ ANGELA RECOMENDS:
 
 Ask Angela About These Books!
 
+MARINA RECOMENDS:
+
+* An Elephant in the Garden, for ages 8 and up
+* City of Ember, for ages 8 and up
 
 * * *
 
