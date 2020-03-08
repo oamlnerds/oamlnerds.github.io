@@ -1,7 +1,9 @@
-
+---
+layout: default
+---
 
 # Calendar
-* * *
+
 This part of the website will show special upcoming events, special events, and more. Check here frequently!
 
 * * *
@@ -175,5 +177,4 @@ Daily November holidays and special days
 28 Boxing Day - date can vary
 31 New Year's Eve
 Daily December holidays and special days
-
 
