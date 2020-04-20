@@ -1,7 +1,7 @@
 ---
 layout: default
 ---
-<img src= "FPS_logo.jpg" />
+<img src= "FPS_logo.png" />
 ![Sitka FPS](C:\Users\Bahna Family\Desktop\Angela's\FPS_logo.png)
 
 # FPS
