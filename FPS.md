@@ -2,7 +2,7 @@
 layout: default
 ---
 
-![fps logo](https://lh3.googleusercontent.com/proxy/NDRElzvT4Zxv8LzNM5K7xsjo7SrbYnW_pTJeA7T1-9Ffo4BsppnMYybQRBJ6FiiYjLON-HGi1mioF6QLHHVFuX8MnJs2-w)
+![Sitka FPS](C:\Users\Bahna Family\Desktop\Angela's\FPS_logo.png)
 
 # FPS
 
@@ -12,9 +12,9 @@ Go Sitka!!!
 * * *
 
 ### STATE BOWL INFO
-The fpsers are headed to state soon! We have 2 teams going, 1 individual going, and 3 scenarios going too! Teams are listed below. 😉
+The fpsers have headed to state! The Sitka FPSers are now going online due to the coronavirus. Results will be posted shortly!
 
-Team 1 ☝️ 
+Team 1
 Angela 
 Calder 
 Justin 
@@ -24,16 +24,14 @@ Team 2
 Zoe 
 Anna 
 Autumn
-
-Individual 
-Olivia 
+Olivia
 
 Scenario Writers
-Angela 
-Liam 
+Zoe Trafton
 Olivia
-* * *
 
+The FPS teams have headed to state already, and finished their GIPS, SW, and Action Plans. We are excited to hear the results soon!
+* * *
 ###Resources & Topics
 
 The topic for state is Poverty. Find resources here! 😊 
