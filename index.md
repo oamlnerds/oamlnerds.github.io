@@ -23,6 +23,8 @@ Leiylnn is the "l" of the Oamlnerds. She is funny, smart, nice and happy all the
 
 
 Natalie is the "n" of the Oamlnerds. She is inspiring, kind, loving, and full of ideas. She does a variety of sports, has a little sister, and her dog Chile. With her we are the OAMLNERDS!
+![6A929211-0BC3-4EC0-B2C5-A997A128169C](https://user-images.githubusercontent.com/48270916/80925426-1ea67100-8d3c-11ea-994f-2066c1559b79.jpeg)
+
 
 Our newest member is Emery, and she is the "e" of the oamlnerds. She is humorus, smart, and kind. She does gymnastics, and has a dog.
 
