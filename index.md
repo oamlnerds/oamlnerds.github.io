@@ -13,7 +13,7 @@ On this oamlnerds website you will find fun things to do with friends. If you ar
 Olivia is the "o" of the Oamlnerds. She is kind, loving, hardworking, and funny. She plays softball and has two little sisters and princess (the cat) and Pepper (her dog). With her we are the OAMLNERDS!
 
 
-Angela is the "a" of the Oamlnerds. She is funny, joyful, kind, and smart. She is in the Sitka Skippers (jump rope team), has a little sister, and 7 pet goldfish. With her we are the OAMLNERDS!
+Angela is the "a" of the Oamlnerds. She is funny, joyful, kind, and smart. She is in the Sitka Skippers (jump rope team), has a little sister, 5 pet goldfish, and her new baby chicks; Willa, Goldy, Marshmellow, and Penguin. With her we are the OAMLNERDS!
 
 
 Marina is the "m" of the Oamlnerds. She is funny, a great actor, kind, and bold. She does gymnastics and has a little brother, and her dog Ruby. With her we are the OAMLNERDS!
@@ -24,10 +24,12 @@ Leiylnn is the "l" of the Oamlnerds. She is funny, smart, nice and happy all the
 
 Natalie is the "n" of the Oamlnerds. She is inspiring, kind, loving, and full of ideas. She does a variety of sports, has a little sister, and her dog Chile. With her we are the OAMLNERDS!
 
+Our newest member is Emery, and she is the "e" of the oamlnerds. She is humorus, smart, and kind. She does gymnastics, and has a dog.
+
 #THE OAMLNERDS!
 
 * * *
-If you are an FPSer, please ignore the top, as I use this also as my friend website. Click on the button above titled, FPS.
+If you are an FPSer, please ignore the top, as I use this also as my friend website. Go to the website oamlnerds.github.io/FPS
 
 * * *
 
