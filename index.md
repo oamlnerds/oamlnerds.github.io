@@ -23,10 +23,12 @@ Marina is the "m" of the Oamlnerds. She is funny, a great actor, kind, and bold.
 
 
 Leiylnn is the "l" of the Oamlnerds. She is funny, smart, nice and happy all the time. She is in Sitka Skippers and has a little brother. With her we are the OAMLNERDS!
+
 ![699C889B-5DF9-41EC-AA1B-5D54E14E9DDF](https://user-images.githubusercontent.com/48270916/80925867-e2750f80-8d3f-11ea-87fd-df86f3da1c6c.jpeg)
 
 
 Natalie is the "n" of the Oamlnerds. She is inspiring, kind, loving, and full of ideas. She does a variety of sports, has a little sister, and her dog Chile. With her we are the OAMLNERDS!
+
 ![6A929211-0BC3-4EC0-B2C5-A997A128169C](https://user-images.githubusercontent.com/48270916/80925426-1ea67100-8d3c-11ea-994f-2066c1559b79.jpeg)
 
 
