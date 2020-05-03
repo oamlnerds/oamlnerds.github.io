@@ -16,7 +16,7 @@ Olivia is the "o" of the Oamlnerds. She is kind, loving, hardworking, and funny.
 Angela is the "a" of the Oamlnerds. She is funny, joyful, kind, and smart. She is in the Sitka Skippers (jump rope team), has a little sister, 5 pet goldfish, and her new baby chicks; Willa, Goldy, Marshmellow, and Penguin. With her we are the OAMLNERDS!
 
 
-Marina is the "m" of the Oamlnerds. She is funny, a great actor, kind, and bold. She does gymnastics and has a little brother, and her dog Ruby. With her we are the OAMLNERDS!
+Marina is the "m" of the Oamlnerds. She is funny, a great actor, kind, and bold. She does gymnastics and has a little brother, her dog Ruby, two chickens; Snowflake and Feathers, and a bata named rojo  With her we are the OAMLNERDS!
 
 
 Leiylnn is the "l" of the Oamlnerds. She is funny, smart, nice and happy all the time. She is in Sitka Skippers and has a little brother. With her we are the OAMLNERDS!
