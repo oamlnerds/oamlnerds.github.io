@@ -2,7 +2,7 @@
 layout: default
 ---
 
-![EA337193-8CB5-49D3-823D-288A7E81BBBA](https://user-images.githubusercontent.com/48270916/80922693-42ad8680-8d2b-11ea-9821-57796efbb9fd.jpeg)
+![BA5C4051-B930-428A-B2D5-E161AC5EECF2](https://user-images.githubusercontent.com/48270916/81028315-4a555400-8e2d-11ea-8db7-9cbd50380c14.png)
 
 
 ## Welcome to OAMLNERDS
