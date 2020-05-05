@@ -22,7 +22,7 @@ Angela is the "a" of the Oamlnerds. She is funny, joyful, kind, and smart. She i
 
 
 Marina is the "m" of the Oamlnerds. She is funny, a great actor, kind, and bold. She does gymnastics and has a little brother, her dog Ruby, two chickens; Snowflake and Feathers, and a bata named rojo  With her we are the OAMLNERDS!
-
+![485B00ED-98E8-431E-9CAE-DD3288F4862F](https://user-images.githubusercontent.com/48270916/81034023-336d2c80-8e42-11ea-9c6c-79866c20f523.png)
 
 
 Leiylnn is the "l" of the Oamlnerds. She is funny, smart, nice and happy all the time. She is in Sitka Skippers and has a little brother. With her we are the OAMLNERDS!
