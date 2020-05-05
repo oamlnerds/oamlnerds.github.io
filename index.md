@@ -30,7 +30,7 @@ Leiylnn is the "l" of the Oamlnerds. She is funny, smart, nice and happy all the
 ![699C889B-5DF9-41EC-AA1B-5D54E14E9DDF](https://user-images.githubusercontent.com/48270916/80925867-e2750f80-8d3f-11ea-87fd-df86f3da1c6c.jpeg)
 
 
-Natalie is the "n" of the Oamlnerds. She is inspiring, kind, loving, and full of ideas. She does a variety of sports, has a little sister, and her dog Chili. With her we are the OAMLNERDS!
+Natalie is the "n" of the Oamlnerds. She is inspiring, kind, loving, and full of ideas. She does a variety of sports including her favorite; soccer, has a little sister, and her dog Chili. With her we are the OAMLNERDS!
 
 ![F49C15FA-F45B-4382-A9DB-DA2F5B6AB79B](https://user-images.githubusercontent.com/48270916/80935479-49fb8100-8d79-11ea-9a91-2e2051113a53.jpeg)
 
