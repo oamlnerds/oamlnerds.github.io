@@ -11,6 +11,8 @@ This part of the website will show special upcoming events, special events, and 
 * * *
 ### Up coming events
 
+![IMG_1982](https://user-images.githubusercontent.com/48270916/81139592-bf4e8980-8f12-11ea-8eac-770024d79fee.jpg)
+
 Birthdays are coming up! Angela and Natalie were born 9 days apart in May, and will be celebrating them in quarintine!They are both  turning 12 this year!
 
 Angela's birthday is May 10th, 2008
