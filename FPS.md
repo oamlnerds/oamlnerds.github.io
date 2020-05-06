@@ -10,7 +10,7 @@ Future Problem solvers are students who are given a scenario, identify 16 challe
 
 Go Sitka!!!
 
-
+![FPS_logo](https://user-images.githubusercontent.com/48270916/81138764-9aa4e280-8f0f-11ea-81f2-d93614618976.png)
 
 * * *
 TO EDIT THIS WEBPAGE PLEASE CONTACT ANGELA
