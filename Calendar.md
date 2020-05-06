@@ -6,6 +6,8 @@ layout: default
 
 This part of the website will show special upcoming events, special events, and more. Check here frequently!
 
+![IMG_1981](https://user-images.githubusercontent.com/48270916/81139541-90d0ae80-8f12-11ea-9701-5190c30a7032.jpg)
+
 * * *
 ### Up coming events
 
