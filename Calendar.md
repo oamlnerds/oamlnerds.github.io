@@ -6,18 +6,14 @@ layout: default
 
 This part of the website will show special upcoming events, special events, and more. Check here frequently!
 
-![IMG_1981](https://user-images.githubusercontent.com/48270916/81139541-90d0ae80-8f12-11ea-9701-5190c30a7032.jpg)
+![B6625B7F-D388-475C-9DE0-C798062BD52A](https://user-images.githubusercontent.com/48270916/83373087-c16e0180-a373-11ea-96f2-65bc6a5277da.jpeg)
 
 * * *
 ### Up coming events
 
-![IMG_1982](https://user-images.githubusercontent.com/48270916/81139592-bf4e8980-8f12-11ea-8eac-770024d79fee.jpg)
+(There are no upcoming events :)
 
-Birthdays are coming up! Angela and Natalie were born 9 days apart in May, and will be celebrating them in quarintine!They are both  turning 12 this year!
 
-Angela's birthday is May 10th, 2008
-
-Natalie's birthday is May 19th, 2008
 * * *
 ### Special events calendar 📆 
 
