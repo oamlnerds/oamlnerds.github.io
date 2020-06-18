@@ -18,13 +18,17 @@ oamlnerds.github.io/Calendar
 
 oamlnerds.github.io/ENTERTAINMENT
 
-#### SHOP:
+#### News:
 
-oamlnerds.github.io/SHOP
+oamlnerds.github.io/news
 
 #### FPS
 
 oamlnerds.github.io/FPS
+
+#### Donate:
+
+oamlnerds.github.io/donate
 
 * * *
 
