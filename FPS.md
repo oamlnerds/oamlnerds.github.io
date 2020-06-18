@@ -12,6 +12,12 @@ Go Sitka!!!
 
 ![FPS_logo](https://user-images.githubusercontent.com/48270916/81138764-9aa4e280-8f0f-11ea-81f2-d93614618976.png)
 
+### The champions
+
+Weeeeee are the champions.....
+
+Sitka’s junior team has gone to IC virtually and has placed 5th! 5th in the world!!!!!
+
 * * *
 TO EDIT THIS WEBPAGE PLEASE CONTACT ANGELA
 
