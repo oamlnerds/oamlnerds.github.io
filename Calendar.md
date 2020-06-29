@@ -11,7 +11,7 @@ This part of the website will show special upcoming events, special events, and 
 * * *
 ### Up coming events
 
-(There are no upcoming events :)
+4th of July!!!
 
 
 * * *
