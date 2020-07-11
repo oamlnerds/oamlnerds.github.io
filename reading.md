@@ -14,8 +14,7 @@ Find August's reccomendations, book quizzes, and more!
 
 (Coming Soon!)
 
-### Book Games!
-
+### Book Reviews
 (Coming Soon!)
 
 * * * 
