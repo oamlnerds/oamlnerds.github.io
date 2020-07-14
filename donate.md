@@ -11,6 +11,6 @@ Welcome to donate! Every so often, we will have a group we are supporting. To do
 
 ![4DCAD956-DAFD-4AB3-97BF-D0B92FD8FFB8](https://user-images.githubusercontent.com/48270916/85481103-a99e2d80-b56d-11ea-8d23-298db0191a3e.jpeg)
 
-To donate to ASPCA, click on the link below:
+To donate to ASPCA, copy and paste this link into your web browser. 😉 
 
 https://www.aspca.org
