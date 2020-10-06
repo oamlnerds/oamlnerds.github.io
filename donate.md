@@ -9,7 +9,7 @@ Welcome to donate! Every so often, we will have a group we are supporting. To do
 
 #### THE SALVATION ARMY
 
-
+![Salvation army](https://user-images.githubusercontent.com/48270916/95145505-dbf02700-0727-11eb-84a7-b0058ea70de9.jpg)
 
 To donate to The Salvation Army, copy and paste this link into your web browser. 😉 
 
