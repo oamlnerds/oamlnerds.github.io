@@ -6,7 +6,7 @@ layout: default
 
 
 ## Welcome to OAMLNERDS
-Welcome to the oamlnerds! the oamlnerds are a group of 6th grade girls. Oamlne comes from our names Olivia, Angela, Marina, Leilynn, Natalie, and Emery!
+Welcome to the oamlnerds! the oamlnerds are a group of 7th grade girls. Oamlne comes from our names Olivia, Angela, Marina, Leilynn, Natalie, and Emery!
 My name is Angela, and I am the creator of this website. It all started when my piano teacher was showing me his website, and soon I wanted one too! I decided to make a website for my best friends. I hope you enjoy it!
 On this oamlnerds website you will find fun things to do with friends. If you are a member of the oamlnerds please ask Angela to post information. Thanks for joining the oamlnerds website!
 
