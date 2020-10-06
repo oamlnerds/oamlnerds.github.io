@@ -6,13 +6,12 @@ layout: default
 
 This part of the website will show special upcoming events, special events, and more. Check here frequently!
 
-![BBAB7983-558E-40C0-B3E1-C5A4B79EA2EB](https://user-images.githubusercontent.com/48270916/85966022-08e3af80-b96b-11ea-901b-6172c02ab7c1.jpeg)
+![october clipart](https://user-images.githubusercontent.com/48270916/95144959-7485a780-0726-11eb-8b47-1ec12158f9b0.png)
 
 * * *
 ### Up coming events
 
-4th of July!!!
-
+Halloween!
 
 * * *
 ### Special events calendar 📆 
