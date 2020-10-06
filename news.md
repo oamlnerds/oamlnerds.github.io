@@ -10,8 +10,7 @@ Welcome to our news page! Here you will find the latest updates from a 7th’s g
 
 ## JULY NEWS
 
-Hello. This is Leilynn with the July news report. Recently limits for salmon in Sitka has gone up from 1 to 3. While that might make everyone happy now, soon we will all be sick and tired of fish. Although, it will provide lots of chances for people to see bears get in to their fishy smelling garbage cans! More good ocean news is that the whale population is increasing yearly by 8.4 % and there are an estimated 15,000 whales in the ocean right as we speak. 
-Even though many things have been canceled due to Covid-19, the annual Forth of July fireworks will go on thanks to the Hames Corporation. Get ready for amazing lights and loud noises well past midnight! In place of the usual parade, there will be an older cars parade that will go down all the back roads to help with social distancing. Bring your mask! The parade will start at whale park. There will still be food stands (Angela can you double check that I only heard that from one person) but don’t eat to much. So, this concludes the July news report the next update will be next month so until then don’t get sick.
+Hi to the few people in the world ever to read this. This is Leilynn with the October news. Boring thing first. The weather report for 10/5 though 10/9 is rain and rain. Then scattered showers and foggy rain. Then partly sunny and (you guessed it) chance of rain. Now that that's out of the way we can get on to the interesting stuff. Firstly (according to KCAW) there will still be the downtown trick-or-treating as usual. Mask are required. The 3-5 preschools annual pumpkin patch will also be happening. Whether the Alaska Day celebrations will go on remains to be seen.
 
 * * *
 Please contact Angela to help or give suggestions.
