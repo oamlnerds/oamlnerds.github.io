@@ -7,10 +7,14 @@ Welcome to donate! Every so often, we will have a group we are supporting. To do
 
 ### JULY’S GROUP
 
-#### ASPCA
+#### THE SALVATION ARMY
 
-![4DCAD956-DAFD-4AB3-97BF-D0B92FD8FFB8](https://user-images.githubusercontent.com/48270916/85481103-a99e2d80-b56d-11ea-8d23-298db0191a3e.jpeg)
 
-To donate to ASPCA, copy and paste this link into your web browser. 😉 
 
-https://www.aspca.org
+To donate to The Salvation Army, copy and paste this link into your web browser. 😉 
+
+https://give.salvationarmyusa.org/give/164006/#!/donation/checkout
+
+* * *
+
+Have a group you want to support? Contact the oamlnerds! We are happy to support.
