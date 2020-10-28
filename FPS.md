@@ -12,6 +12,12 @@ Go Sitka!!!
 
 ![FPS_logo](https://user-images.githubusercontent.com/48270916/81138764-9aa4e280-8f0f-11ea-81f2-d93614618976.png)
 
+## Members
+
+Coach: Mrs. Prussian
+
+Students: Olivia S, Angela B, Zoe T, Liam L, Calder P, and Justin H.
+
 ### Practice
 
 FPS has started! Practice is Wednsday from 3:30pm-5pm over Zoom.
