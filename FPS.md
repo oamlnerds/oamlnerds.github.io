@@ -12,6 +12,14 @@ Go Sitka!!!
 
 ![FPS_logo](https://user-images.githubusercontent.com/48270916/81138764-9aa4e280-8f0f-11ea-81f2-d93614618976.png)
 
+### Practice
+
+FPS has started! Practice is Wednsday from 3:30pm-5pm over Zoom.
+
+### TOPICS
+
+2020 topics are Youth in Competetive Sports, Wearable Technology, Human-Eviromental Impact, and Personalized Medicine!
+
 ### The champions
 
 Weeeeee are the champions.....
