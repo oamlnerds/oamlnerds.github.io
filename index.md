@@ -2,10 +2,7 @@
 layout: default
 ---
 
-![BA5C4051-B930-428A-B2D5-E161AC5EECF2](https://user-images.githubusercontent.com/48270916/81028315-4a555400-8e2d-11ea-8db7-9cbd50380c14.png)
-
 ![MicrosoftTeams-image](https://user-images.githubusercontent.com/48270916/100828874-95a80300-340c-11eb-936d-9d9e46b1bab6.png)
-
 
 ## Welcome to OAMLNERDS
 Welcome to the oamlnerds! the oamlnerds are a group of 7th grade girls. Oamlne comes from our names Olivia, Angela, Marina, Leilynn, Natalie, and Emery!
