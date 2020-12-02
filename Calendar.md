@@ -6,12 +6,16 @@ layout: default
 
 This part of the website will show special upcoming events, special events, and more. Check here frequently!
 
-![october clipart](https://user-images.githubusercontent.com/48270916/95144959-7485a780-0726-11eb-8b47-1ec12158f9b0.png)
+![December](https://user-images.githubusercontent.com/48270916/100830222-9ee69f00-340f-11eb-8377-ed57fe6a8c94.jpg)
 
 * * *
 ### Up coming events
 
-Halloween!
+Christmas Eve
+
+Christmas Day
+
+New Year's Eve
 
 * * *
 ### Special events calendar 📆 
