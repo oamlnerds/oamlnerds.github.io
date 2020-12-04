@@ -8,9 +8,9 @@ Welcome to our news page! Here you will find the latest updates from a 7th’s g
 
 ![2F9A836A-0A9B-4316-A6CB-CC5C171D69CC](https://user-images.githubusercontent.com/48270916/85074248-bfc07e00-b168-11ea-8c66-e76d19646408.jpeg)
 
-## OCTOBER NEWS
+## DECEMBER NEWS
 
-Hi to the few people in the world ever to read this. This is Leilynn with the October news. Boring thing first. The weather report for 10/5 though 10/9 is rain and rain. Then scattered showers and foggy rain. Then partly sunny and (you guessed it) chance of rain. Now that that's out of the way we can get on to the interesting stuff. Firstly (according to KCAW) there will still be the downtown trick-or-treating as usual. Mask are required. The 3-5 preschools annual pumpkin patch will also be happening. Whether the Alaska Day celebrations will go on remains to be seen.
+Happy holidays! This is Leilynn with the December New report. Let's start off with the holidays. This year Hanukkah starts on December, 10th and ends on the 18th. Kwanzaa Starts on Saturday December, 26. National Cookie Day is on the 8th and Christmas will be on the the 25 as always. Get out your candles, Dreidels, and trees! The rain has finally stopped here in southeast but (at the time of writing) with no snow in the forecast to most everyone's disappointment. However there might be more rain in the near future. Rain gear and umbrellas highly recommended. Hunting has not be very good lately with some people saying that the runt has not even started yet. That concludes the December new report.
 
 * * *
-Please contact Angela to help or give suggestions.
+oamlnerds
