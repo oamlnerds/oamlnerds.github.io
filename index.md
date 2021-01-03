@@ -36,7 +36,7 @@ Natalie is the "n" of the Oamlnerds. She is inspiring, kind, loving, and full of
 
 Our newest member is Emery, and she is the "e" of the oamlnerds. She is humorus, smart, and kind. She does gymnastics, and has a dog.
 
-![89CCE41A-D4D6-46C3-981E-E7E0DFCA78A9](https://user-images.githubusercontent.com/48270916/81034186-c7d78f00-8e42-11ea-8ae9-dd9161b6eb8a.jpeg)
+![050BA55F-62A9-4330-8E5A-3696BC7E6FA1](https://user-images.githubusercontent.com/48270916/103471230-b638e500-4d4b-11eb-8b3b-bc3b0fdbc797.png)
 
 
 #THE OAMLNERDS!
