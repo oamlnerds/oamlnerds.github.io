@@ -6,19 +6,51 @@ layout: default
 
 This part of the website will show special upcoming events, special events, and more. Check here frequently!
 
-![December](https://user-images.githubusercontent.com/48270916/100830222-9ee69f00-340f-11eb-8377-ed57fe6a8c94.jpg)
+![pink-banner-hearts-text-february-header-109840514](https://user-images.githubusercontent.com/48270916/106693328-b44c8680-6582-11eb-9d99-a55652d3d8a7.jpg)
 
 * * *
 ### Up coming events
 
-Christmas Eve
+Groundhog Day
 
-Christmas Day
+Valentine's Day
 
-New Year's Eve
+### Other Great Holidays this month:
+
+February 1: National Freedom Day, National Dark Chocolate Day, National Serpent Day, National Baked Alaska Day, National Get Up Day
+February 2: Groundhog Day, National Hedgehog Day, National Tater Tot Day, National Ukulele Day
+February 3: Four Chaplains Day, National Missing Persons Day, National Carrot Cake Day, National Golden Retriever Day
+February 4: USO Day, World Cancer Day, National Homemade Soup Day
+February 5: National Weatherperson's Day, World Nutella Day
+February 6: National Lame Duck Day, Pay a Compliment Day, National Frozen Yogurt Day
+February 7: National Send a Card to a Friend Day, Rose Day, National Fettuccine Alfredo Day, National Bubble Gum Day* (first Friday), National Wear Red Day* (first Friday), Give Kids a Smile Day* (first Friday)
+February 8: Take Your Child to the Library Day* (first Saturday), National Kite Flying Day, Opera Day, Read in the Bathtub Day
+February 9, National Pizza Day, World Marriage Day* (second Sunday)
+February 10: National Umbrella Day, Teddy Day, National Clean Out Your Computer Day* (second Monday)
+
+February 11: National Inventors' Day, National Make a Friend Day, National Don’t Cry Over Spilled Milk Day, National Make a Friend Day, Get Out Your Guitar Day, International Day of Women and Girls in Science
+February 12: Abraham Lincoln's Birthday, International Darwin Day
+February 13: World Radio Day, Galentine's Day, National Tortellini Day
+February 14: Valentine's Day, National Organ Donor Day
+February 15: National Gumdrop Day, Susan B. Anthony Day, National Bagel Day, Singles Awareness Day
+February 16: Do a Grouch a Favor Day, National Almond Day
+February 17: Presidents' Day* (third Monday)
+February 18: National Battery Day, National Drink Wine Day
+February 19: National Chocolate Mint Day
+February 20: National Love Your Pet Day, National Muffin Day
+February 21: International Mother Language Day, National Sticky Bun Day, National Caregivers Day* (third Friday)
+February 22: George Washington's Birthday, Be Humble Day, World Thinking Day, National Margarita Day
+February 23: National Banana Bread Day
+
+February 24: National Tortilla Chip Day
+February 25: National Chocolate Covered Nut Day, Let's All Eat Right Day, National Clam Chowder Day, National Pancake Day, World Spay Day* (last Tuesday)
+February 26: Tell a Fairy Tale Day, National Pistachio Day
+February 27: No Brainer Day, International Polar Bear Day, National Chili Day, Digital Learning Day* (last Thursday)
+February 28: National Public Sleeping Day, National Chocolate Souffle Day, National Science Day
+
 
 * * *
-### Special events calendar 📆 
+### Special events calendar (Yearly) 📆 
 
 Major 2020 Daily Holiday Calendar 
 
