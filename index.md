@@ -15,7 +15,7 @@ Olivia is the "o" of the Oamlnerds. She is kind, loving, hardworking, and funny.
 
 ![242BEF93-0527-41F0-94A6-DF34C129FDB7](https://user-images.githubusercontent.com/48270916/80935334-9d210400-8d78-11ea-97d2-6d069b8fdd4e.jpeg)
 
-Angela is the "a" of the Oamlnerds. She is funny, joyful, kind, and smart. She is in the Sitka Skippers (jump rope team), plays piano,and enjoys computer science. She has a little sister, 5 pet goldfish, and her new baby chicks; Willa, Goldy, Marshmellow, and Penguin. With her we are the OAMLNERDS!
+Angela is the "a" of the Oamlnerds. She is funny, joyful, kind, and smart. She is in the Sitka Skippers (jump rope team), plays piano,and enjoys computer science. She has a little sister, 2 cats (Policy & Tofu), and 4 chickens; Willa, Goldy, Marshie, and Penguin. With her we are the OAMLNERDS!
 
 ![E813CA8C-EC06-4D56-AFFE-642175AF993A](https://user-images.githubusercontent.com/48270916/80925539-0b47d580-8d3d-11ea-90e0-d00ef520e3a6.jpeg)
 
