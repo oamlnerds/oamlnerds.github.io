@@ -12,6 +12,7 @@ On this oamlnerds website you will find fun things to do with friends. If you ar
 
 Olivia is the "o" of the Oamlnerds. She is kind, loving, hardworking, and funny. She plays softball and has two little sisters and princess (the cat) and Pepper (her dog). With her we are the OAMLNERDS!
 
+![oliviabitmoji](https://user-images.githubusercontent.com/48270916/118736949-368a4f00-b7f0-11eb-8f8e-cf4347f14f32.jpg)
 
 ![242BEF93-0527-41F0-94A6-DF34C129FDB7](https://user-images.githubusercontent.com/48270916/80935334-9d210400-8d78-11ea-97d2-6d069b8fdd4e.jpeg)
 
