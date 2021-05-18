@@ -194,6 +194,6 @@ Daily December holidays and special days
 
 With special thanks to:
 
-######## Pintrist
+#### Pintrist
 
 https://www.pinterest.com/pin/216946907037893417/
