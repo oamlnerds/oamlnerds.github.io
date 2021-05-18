@@ -6,7 +6,9 @@ layout: default
 
 ## Welcome to OAMLNERDS
 Welcome to the oamlnerds! the oamlnerds are a group of 7th grade girls. Oamlne comes from our names Olivia, Angela, Marina, Leilynn, Natalie, and Emery!
-My name is Angela, and I am the creator of this website. It all started when my piano teacher was showing me his website, and soon I wanted one too! I decided to make a website for my best friends. I hope you enjoy it!
+My name is Angela, and I am the creator of this website. I will be posting new updates monthly in **Calendar**, **News**, **Movies**, **Reading**, **Music**, **Cooking**, and **Entertainment**. Make sure to check here frequently!
+
+
 On this oamlnerds website you will find fun things to do with friends. If you are a member of the oamlnerds please ask Angela to post information. Thanks for joining the oamlnerds website!
 
 
@@ -14,9 +16,8 @@ Olivia is the "o" of the Oamlnerds. She is kind, loving, hardworking, and funny.
 
 ![oliviabitmoji](https://user-images.githubusercontent.com/48270916/118736949-368a4f00-b7f0-11eb-8f8e-cf4347f14f32.jpg)
 
-![242BEF93-0527-41F0-94A6-DF34C129FDB7](https://user-images.githubusercontent.com/48270916/80935334-9d210400-8d78-11ea-97d2-6d069b8fdd4e.jpeg)
 
-Angela is the "a" of the Oamlnerds. She is funny, joyful, kind, and smart. She is in the Sitka Skippers (jump rope team), plays piano,and enjoys computer science. She has a little sister, 2 cats (Policy & Tofu), and 4 chickens; Willa, Goldy, Marshie, and Penguin. With her we are the OAMLNERDS!
+Angela is the "a" of the Oamlnerds. She is funny, joyful, kind, and smart. She is in the Sitka Skippers (jump rope team), plays piano & flute,and enjoys computer science & politics. She has a little sister, 2 cats (Policy & Tofu), and 4 chickens; Willa, Goldy, Marshie, and Penguin. With her we are the OAMLNERDS!
 
 ![E813CA8C-EC06-4D56-AFFE-642175AF993A](https://user-images.githubusercontent.com/48270916/80925539-0b47d580-8d3d-11ea-90e0-d00ef520e3a6.jpeg)
 
