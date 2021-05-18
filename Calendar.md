@@ -6,14 +6,18 @@ layout: default
 
 This part of the website will show special upcoming events, special events, and more. Check here frequently!
 
-![pink-banner-hearts-text-february-header-109840514](https://user-images.githubusercontent.com/48270916/106693328-b44c8680-6582-11eb-9d99-a55652d3d8a7.jpg)
+![344F3742-103B-477A-921F-664C1E8920A8](https://user-images.githubusercontent.com/48270916/118583186-210a1c00-b741-11eb-87fc-50f7fdf02309.jpeg)
 
 * * *
 ### Up coming events
 
-Groundhog Day
+May 10th: 🎂 Angela’s Birthday
 
+May 19th: 🎂 Natalie’s Birthday
 Valentine's Day
+
+May 31st: 🇺🇸 Memorial Day
+
 
 ### Other Great Holidays this month:
 
