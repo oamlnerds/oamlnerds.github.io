@@ -1,5 +1,5 @@
 
-# Cooking!
+# Cooking
 
 ![MicrosoftTeams-image (1)](https://user-images.githubusercontent.com/48270916/100936048-67becf00-349d-11eb-8ab5-cca4a34ed21b.png)
 
