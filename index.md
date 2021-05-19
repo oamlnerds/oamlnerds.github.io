@@ -5,7 +5,7 @@ layout: default
 ![0239007A-B43B-40ED-BF24-3CA27BDE9D36](https://user-images.githubusercontent.com/48270916/114258070-8152b480-9970-11eb-9435-4e6b77685817.jpeg)
 
 ## Welcome to OAMLNERDS
-Welcome to the oamlnerds! the oamlnerds are a group of 7th grade girls. Oamlne comes from our names Olivia, Angela, Marina, Leilynn, Natalie, and Emery!
+Welcome to the oamlnerds! the oamlnerds are a group of 7th grade girls. Oamlne comes from our names Olivia, Angela, Marina, Leilynn, and Natalie!
 My name is Angela, and I am the creator of this website. I will be posting new updates monthly in **Calendar**, **News**, **Movies**, **Reading**, **Music**, **Cooking**, and **Entertainment**. Make sure to check here frequently!
 
 
@@ -35,10 +35,6 @@ Leilynn is the "l" of the Oamlnerds. She is funny, smart (especially in history)
 Natalie is the "n" of the Oamlnerds. She is inspiring, kind, loving, and full of ideas. She does a variety of sports including her favorite; soccer, has a little sister, and her dog Chili. With her we are the OAMLNERDS!
 
 ![NatBitmoji](https://user-images.githubusercontent.com/48270916/95144372-faa0ee80-0724-11eb-9089-d70036416f0d.jpg)
-
-Our newest member is Emery, and she is the "e" of the oamlnerds. She is humorus, smart, and kind. She does gymnastics, and has a dog.
-
-![050BA55F-62A9-4330-8E5A-3696BC7E6FA1](https://user-images.githubusercontent.com/48270916/103471230-b638e500-4d4b-11eb-8b3b-bc3b0fdbc797.png)
 
 
 #THE OAMLNERDS!
