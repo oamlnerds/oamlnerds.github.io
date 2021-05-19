@@ -5,12 +5,16 @@ Welcome to Reading! If you are a bookworm or if you love reading, this page is e
 
 ![8CE432DD-C370-4721-B34A-9D9728296E11](https://user-images.githubusercontent.com/48270916/87370644-0323c780-c530-11ea-9494-8a9e5c4c597b.jpeg)
 
-## December
-Find December's reccomendations, book quizzes, and more!
+## May
+Find May's reccomendations, book quizzes, and more!
 
 ### Book Reccomendations
 
-(Coming Soon!)
+*By Natalie*
+
+1. The Fault in Our Stars
+2. The Hate You Give
+3. I Will Always Write Back
 
 ### Book Quizes
 
@@ -20,4 +24,3 @@ Find December's reccomendations, book quizzes, and more!
 (Coming Soon!)
 
 * * * 
-Webpage is currently being established. Thank you for your patience!
