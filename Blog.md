@@ -10,4 +10,4 @@ Welcome to the oamlnerds blog! To view an article click on the name!
 
 (Note: our blog is currently being established).
 
-<a href="https://oamlnerds.github.io/blog-cats.md">**Cool tips, tricks, and information on your cat** , by Angela</a>
+<a href="https://oamlnerds.github.io/blog-cats.md">**Cool tips, tricks, and information on your cat**, by Angela</a>
