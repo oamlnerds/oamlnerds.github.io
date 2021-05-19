@@ -9,11 +9,6 @@ In this section you will find fun things to do with friends or by yourself.
 
 ![307EAA95-57B1-4D51-8049-1255A6E4003C](https://user-images.githubusercontent.com/48270916/85076413-8ab62a80-b16c-11ea-9c5f-fa069797bf7d.jpeg)
 
-### Blog
-
-Click the link to go to our blog page:
-
-<a href="https://oamlnerds.github.io/Blog">**Click Here to visit the Oamlnerds Blog!**</a>
 
 ### Let's play WOULD YOU RATHER!
 
