@@ -13,7 +13,7 @@ In this section you will find fun things to do with friends or by yourself.
 
 Click the link to go to our blog page:
 
-<a href="https://oamlnerds.github.io/Blog">Click Here to visit the Oamlnerds Blog!</a>
+<a href="https://oamlnerds.github.io/Blog">**Click Here to visit the Oamlnerds Blog!**</a>
 
 ### Let's play WOULD YOU RATHER!
 
