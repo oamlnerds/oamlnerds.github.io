@@ -5,7 +5,7 @@ layout: default
 ![0239007A-B43B-40ED-BF24-3CA27BDE9D36](https://user-images.githubusercontent.com/48270916/114258070-8152b480-9970-11eb-9435-4e6b77685817.jpeg)
 
 ## Welcome to OAMLNERDS
-Welcome to the oamlnerds! the oamlnerds are a group of 7th grade girls. Oamlne comes from our names Olivia, Angela, Marina, Leilynn, and Natalie!
+Welcome to the oamlnerds! the oamlnerds are a group of 7th grade girls. Oamln comes from our names Olivia, Angela, Marina, Leilynn, and Natalie!
 My name is Angela, and I am the creator of this website. I will be posting new updates monthly in **Calendar**, **News**, **Movies**, **Reading**, **Music**, **Cooking**, and **Entertainment**. Make sure to check here frequently!
 
 
