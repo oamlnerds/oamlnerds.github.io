@@ -15,4 +15,13 @@ Welcome to the oamlnerds blog! Scroll through this page to find articles written
 Table of Contents
 
 
-Post 1: How to Properly Train a Cat to Walk on a Leash, *by Angela* .
+Post 1: How to Properly Train a Cat to Walk on a Leash, *by Angela*.
+
+Post 2: (coming soon!)
+
+* * * 
+
+
+## How to Properly Train a Cat to Walk on a Leash
+
+**By Angela** | May 28th, 2021
