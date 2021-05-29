@@ -9,3 +9,10 @@ layout: default
 Welcome to the oamlnerds blog! Scroll through this page to find articles written by 7th grade students.
 
 (Note: our blog is currently being established).
+
+* * *
+
+Table of Contents
+
+
+Post 1: How to Properly Train a Cat to Walk on a Leash, *by Angela* .
