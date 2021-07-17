@@ -66,7 +66,7 @@ Often times kids or parents will be looking for a change from work, screen time,
 
 **1: Shoot the Moon**
 
-![moon](https://user-images.githubusercontent.com/48270916/126023616-1c0bc054-1a58-41b9-8368-140a638a8506.jpg)
+![rsz_moon](https://user-images.githubusercontent.com/48270916/126023733-aaa0a02e-2758-4e8c-94d6-1f093c040502.jpg)
 
 This classic game will have you trying for hours, days, and weeks! Click <a href="https://www.amazon.com/WE-Games-Shoot-Moon-inches/dp/B0009Z3IPK/ref=sr_1_2?dchild=1&keywords=shoot+the+moon&qid=1626491213&sr=8-2">here</a> to buy from Amazon.
 
