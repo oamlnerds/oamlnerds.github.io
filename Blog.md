@@ -15,9 +15,9 @@ Welcome to the oamlnerds blog! Scroll through this page to find articles written
 #### Posts
 
 
-Post 1: How to Properly Train a Cat to Walk on a Leash, *by Angela*.
+Post 1: How to Properly Train a Cat to Walk on a Leash
 
-Post 2: (coming soon!)
+Post 2: Top 5 Most Addicting Toys for All Ages
 
 * * * 
 
@@ -50,3 +50,16 @@ Once you have recived the harness, show it to your cat. Do NOT put it on your ca
 
 *Note on Step 1:* If your cat is showing any signs of anger, you may want to take a break or stop the training to avoid future problems.
 **Step 2**: Putting the Harness on
+
+
+
+* * *
+
+
+### Top 5 Most Addicting Toys for All Ages
+
+**By Angela** | July 16, 2021
+
+
+Often times kids or parents will be looking for a change from work, screen time, or school. With this list of 5 toys, from old fashioned to modern, you can start a friend or family laugh in no time!
+
