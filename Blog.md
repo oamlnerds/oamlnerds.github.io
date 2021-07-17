@@ -70,3 +70,9 @@ Often times kids or parents will be looking for a change from work, screen time,
 
 This classic game will have you trying for hours, days, and weeks! Click <a href="https://www.amazon.com/WE-Games-Shoot-Moon-inches/dp/B0009Z3IPK/ref=sr_1_2?dchild=1&keywords=shoot+the+moon&qid=1626491213&sr=8-2">here</a> to buy from Amazon.
 
+
+**2: Bop it!**
+
+![bopit](https://user-images.githubusercontent.com/48270916/126023813-7f31875e-4159-40ff-a8c6-d60a5af62f3c.jpg)
+
+Can you beat bop it? Testing your ability of speed and acuracy, bop it will have you going! Click <a href="https://www.amazon.com/Hasbro-Gaming-E6393000-BOP-IT/dp/B07M923D3C/ref=sr_1_3?dchild=1&keywords=bop+it&qid=1626492037&sr=8-3">here</a> to buy from Amazon.
